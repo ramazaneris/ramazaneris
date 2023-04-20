@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-I'm Ramco
+It's Ramazan (Ramco) Eriş
